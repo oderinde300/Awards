@@ -6,7 +6,7 @@
 # [Essential Causal Inference Techniques for Data Science](https://drive.google.com/file/d/12SB5ucku1t3cFHx0YIdteli3kLm4iNxp/view?usp=drivesdk)
 **Apr, 2023**
 
-# [Best Graduating Student of the Department of Statistics Federal University of Technology Akure]
+# Best Graduating Student of the Department of Statistics Federal University of Technology Akure
 **Mar, 2024**
 
 
