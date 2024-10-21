@@ -9,4 +9,5 @@
 # Best Graduating Student of the Department of Statistics Federal University of Technology Akure
 **Mar, 2024**
 
-
+# [Study Smart Certificate of Service](https://drive.google.com/file/d/12jcgdpZA1hTeDazz2_t6KzdM8iP_XuXS/view?usp=drivesdk)
+**Jun, 2024**
